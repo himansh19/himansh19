@@ -16,8 +16,7 @@ Familiar with important concepts & architecture of Cloud and having hand-on expe
 
 - 💬 Ask me about **coding related issues and Security or Cryptography related Doubts and I will always be present and we together will definitely try to resolve it.**
 
-- 📫 How to reach me **himanshuaggarwal284@gmail.com**
+- 📫 How to reach me ⚡**himanshuaggarwal284@gmail.com**
 
-- ⚡ 
 
 
